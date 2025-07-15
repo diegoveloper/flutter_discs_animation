@@ -17,7 +17,12 @@ My social networks:
 
 # Result
 
-https://github.com/user-attachments/assets/011f17b9-94db-4013-aa21-2abf9af9aafb
+
+
+https://github.com/user-attachments/assets/d5dba81a-8f88-4e2d-ac8c-6efe365aeb33
+
+
+  
 
 
 https://youtube.com/live/AK6QrZRKbUE
