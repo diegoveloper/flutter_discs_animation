@@ -17,6 +17,7 @@ My social networks:
 
 # Result
 
+https://github.com/user-attachments/assets/011f17b9-94db-4013-aa21-2abf9af9aafb
 
 
 https://youtube.com/live/AK6QrZRKbUE
